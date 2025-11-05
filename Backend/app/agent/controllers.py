@@ -32,7 +32,7 @@ async def chat_with_openai(message: str, chat_history: List[Dict[str, Any]] = No
         model="gpt-4o-mini",
         messages=messages,
         max_tokens=512,
-        temperature=0.7,
+        temperature=0,
     )
     return response.choices[0].message.content
 

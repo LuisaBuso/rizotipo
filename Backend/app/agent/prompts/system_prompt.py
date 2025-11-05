@@ -438,12 +438,147 @@ Delcy Giraldo
 
 ---
 
+Productos Rizos Felices
+MODO DE USO: 
+
+🇪🇸 Aceite Humectante – Rizos Felices
+
+Instrucciones de Uso
+
+Si tu cabello ha pasado por tratamientos de color o lo sientes enredadizo, opaco o quebradizo, este producto es ideal para ti.
+
+A medida que el cabello crece, lo lavas y aplicas productos de limpieza o coloración, va perdiendo su membrana lipídica natural: esa capa que le da brillo, suavidad y protección.
+
+Ahí es donde entra en acción nuestro Aceite Humectante Rizos Felices, formulado para reponer y fortalecer la membrana lipídica del cabello, ayudando a que se mantenga suave, manejable y con un brillo natural.
+
+Este aceite no se utiliza para romper la dureza del rizo —esa es una práctica incorrecta—. Su función real es nutrir y proteger la hebra capilar, favoreciendo la retención de la humedad natural.
+
+Modo de uso:
+	1.	Aplica el aceite sobre la hebra del cabello, puede estar limpio o sucio; lo importante es que el producto se distribuya bien. O puedes aplicarlo 30 minutos antes del lavado. 
+	2.	Realiza un suave masaje con las manos para favorecer su absorción.
+	3.	Coloca un gorro de seda durante la noche para potenciar su efecto humectante.
+	4.	A la mañana siguiente, lava tu cabello como de costumbre.
+	5.	El cabello absorberá los ácidos grasos esenciales del aceite, y al enjuagar eliminarás cualquier exceso, dejando una textura más suave, desenredada y con brillo natural.
+
+Composición:
+
+El Aceite Humectante Rizos Felices contiene una mezcla de seis aceites naturales combinados con leche de avena, formando una emulsión rica en nutrientes que protege, suaviza y revitaliza el cabello frente al desgaste diario.
+
+
+Gel Fluido – Rizos Felices
+Instrucciones de uso
+Con gel de chía, aloe vera y pantenol, el Gel Fluido Rizos Felices aporta suavidad, brillo y fijación,
+que puede ser suave o alta según cómo lo utilices. Si quieres aprovechar todo su potencial,
+incorpóralo a tus rutinas de estilizado.
+• Para fijación suave: Aplica cuando tu cabello esté muy mojado. Toma una
+cantidad equivalente a una moneda, ajustando la cantidad según el volumen y largo de
+tu cabello —entre más cabello tengas, mayor debe ser la cantidad— y distribúyela de
+manera uniforme por toda la hebra. A medida que el cabello se va secando, perderá
+cualquier dureza y dejará una sensación firme pero suave.
+• Para fijación alta: No apliques el producto con el cabello mojado. Cuando tu
+cabello rizado esté casi seco, aplica una o dos moneditas de gel. Aplástalo
+suavemente con las manos, como rezando, para que el producto se impregne bien en
+toda la hebra. Luego termina de secar el cabello y, una vez seco, rompe la dureza del
+gel solo con las manos para dejar una textura flexible y natural.
+• Recuerda: para fijación alta, el gel se aplica con el cabello prácticamente seco,
+no mojado.
+• Si deseas obtener tanto fijación ligera como alta con el mismo producto, usa la
+técnica correspondiente según el resultado que busques.
+
+
+Crema 3 en 1 – Rizos Felices
+Instrucciones de uso
+La Crema 3 en 1 Rizos Felices está formulada para simplificar tus rutinas de cuidado capilar,
+ofreciendo humectación, nutrición y definición en un solo producto. Su fórmula con aceites
+naturales, proteínas vegetales y extractos botánicos protege, suaviza y mejora la manejabilidad
+del cabello ondulado, rizado y afro.
+Puedes usarla de tres formas, según las necesidades de tu cabello:
+1. Como crema para peinar:
+Aplica una cantidad moderada sobre el cabello limpio y húmedo. Distribúyela de
+medios a puntas, desenreda suavemente y define tus rizos como de costumbre. No
+enjuagues.
+2. Como tratamiento humectante:
+Aplica una cantidad generosa sobre el cabello limpio y húmedo. Coloca un gorro
+térmico o de seda y deja actuar entre 15 y 30 minutos. Enjuaga con abundante agua y
+continúa con tu rutina habitual.
+3. Como acondicionador sin enjuague (leave-in):
+Usa una pequeña cantidad sobre el cabello ligeramente húmedo antes del secado o
+definición. Esto aportará control, suavidad y brillo, manteniendo la humectación por
+más tiempo.
+💛
+Consejo Rizos Felices:
+Evita aplicar la crema directamente sobre el cuero cabelludo. Utilízala únicamente
+sobre la hebra capilar. Para resultados óptimos, complementa con los demás
+productos de la línea Rizos Felices según las necesidades de tu textura.
+
+Leave-In Hidratante – Rizos Felices
+Instrucciones de uso
+El Leave-In Hidratante Rizos Felices es un producto versátil que te permite realizar una
+hidratación profunda y al mismo tiempo definir tu cabello. Su fórmula con aloe vera, aceite de
+coco y pantenol aporta suavidad, brillo y manejabilidad, dejando los rizos ligeros, elásticos y
+saludables.
+Puedes utilizarlo de dos formas principales según tus necesidades:
+1. Como producto de estilizado:
+Si buscas una definición suave y ligera, ideal para cabellos que no toleran bien las
+proteínas, aplica el leave-in con el cabello ligeramente húmedo.
+Usa una cantidad equivalente a pequeñas bolitas, según la densidad de tu cabello,
+distribúyelo uniformemente y deja secar al aire libre.
+Tip Rizos Felices: puedes añadir pequeños toques de Gel Fluido Rizos Felices para
+obtener una fijación más duradera y un acabado más definido.
+2. Como tratamiento de hidratación profunda:
+Si sientes tu cabello rígido, opaco o áspero, aplica el producto sobre el cabello muy
+mojado después del lavado.
+Deja actuar entre 15 y 20 minutos, enjuaga con abundante agua y continúa tu rutina
+con la Crema 3 en 1 o el Gel Fluido Rizos Felices.
+Este uso aporta hidratación profunda, acondicionamiento intenso y un desenredado
+excepcional.
+Consejo Rizos Felices:
+Evita aplicar el producto directamente sobre el cuero cabelludo. Utilízalo siempre sobre
+la hebra capilar para mantener rizos saludables, suaves y brillantes.
+
+
+SHAMPOO - RIZOS FELICES
+Para una limpieza suave, cada vez que laves tu cabello aplica el Shampoo Rizos Felices de medios
+a raíz, y el acondicionador de medios a puntas.
+Recuerda que la frecuencia de lavado depende de tus actividades, pero hacerlo cada tres o cuatro
+días es ideal para mantener el cuero cabelludo equilibrado y saludable.
+Para una limpieza profunda, al menos una vez al mes, aplica el shampoo de raíz a puntas sobre el
+cabello seco —sí, seco—.
+Agrega luego un poco de agua, masajea suavemente y comienza a desenredar con los dedos o
+con un peine de dientes anchos.
+Esto permitirá desintoxicar la hebra capilar de minerales o residuos que la puedan saturar.
+Después de la limpieza profunda, es importante restaurar el equilibrio de la hebra.
+Si tu cabello es natural, continúa con el Acondicionador Leave In Rizos Felices, que aportará
+humectación y suavidad.
+Si tu cabello está procesado o con coloración, aplica la Mascarilla de Color Rizos Felices o la
+Crema 3 en 1 como mascarilla.
+Déjala actuar de 15 a 20 minutos y luego enjuaga. Esto ayudará a nutrir y humectar
+profundamente el cabello, manteniéndolo suave, manejable y con brillo natural.
+El Shampoo Rizos Felices, con su alto contenido de pantenol, ayuda a facilitar el desenredo,
+mejorar la elasticidad y mantener la hebra suave.
+Su fórmula con fitoesteroles y aloe vera fortalece la raíz, inhibe la caída y conserva el cuero
+cabelludo en equilibrio.
+Es ideal para cabellos naturales, teñidos o decolorados, ya que no altera el color y limpia sin
+agredir la fibra.
+También es perfecto para cuero cabelludo graso, porque limpia en profundidad sin resecar.
+Recuerda:
+• Para limpieza suave, aplica el shampoo en cabello muy mojado.
+• Para limpieza profunda, aplícalo en cabello seco.
+El resultado: un cabello limpio, nutrido, humectado y lleno de vida, con el toque
+natural de Rizos Felices.
+
+
+
+
+
+
+
 ## 👉 Ejemplo de Respuesta Esperada
 
 *Si el usuario dice:* "Tengo cabello de densidad alta, oleosidad baja y patrón rizado"
 
 *El agente debe responder con:*
-- Rutina completa de lavado
+- Rutina completa de lavado solo sugiriendo productos de Rizos Felices 
 - Frecuencia
 - Definición adaptada a esas características
-- Usando el conocimiento base"""
+- Usando el conocimiento base unicamente"""
