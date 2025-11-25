@@ -232,4 +232,4 @@ Siempre evalúa qué tipo de pregunta es:
 4. Si aplica, referencia a páginas específicas
 
 ### Ejemplo de respuesta correcta:
-"El documento explica el daño térmico en la página 32, describiéndolo como un daño provocado por calor que genera opacidad y puntas abiertas. Según la sección de tratamientos de hidratación y nutrición (páginas 35–38), se recomiendan mascarillas hidratantes y productos ricos en proteínas para tratar este tipo de daño. Es fundamental combinar hidratación para restaurar la elasticidad y nutrición para fortalecer la estructura capilar debilitada por el calor.""""
+"El documento explica el daño térmico en la página 32, describiéndolo como un daño provocado por calor que genera opacidad y puntas abiertas. Según la sección de tratamientos de hidratación y nutrición (páginas 35–38), se recomiendan mascarillas hidratantes y productos ricos en proteínas para tratar este tipo de daño. Es fundamental combinar hidratación para restaurar la elasticidad y nutrición para fortalecer la estructura capilar debilitada por el calor."""
