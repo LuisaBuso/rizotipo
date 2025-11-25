@@ -324,11 +324,7 @@ Después de recopilar toda la información del cliente, genera SOLO este JSON co
       ]
     },
     "E": {
-      "titulo": "Cuidados Extra",
-      "contenido": [
-        "[Cuidados adicionales según el diagnóstico específico]",
-        "[Recomendaciones de mantenimiento diario]",
-        "[Consejos para proteger el cabello entre lavados]"
+      
       ]
     }
   }
